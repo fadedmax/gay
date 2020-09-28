@@ -1,1 +1,4 @@
-(join the origin discord)[https://discord.gg/KK8m7Ah]
+https://discord.gg/vfl
+
+^^
+made by a bunch of people at diffrent tiemzones while were bored lololololololoolololol
